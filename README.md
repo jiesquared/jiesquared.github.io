@@ -1,4 +1,4 @@
-# jiesquared
+# jiesquared ![](https://komarev.com/ghpvc/?username=jiesquared&color=yellow&style=for-the-badge&label=Stalkers+ni+Idol)
   
 ![](https://i.pinimg.com/originals/f0/34/24/f03424bd0298f06f09d9299e930abef3.gif)
 
@@ -70,5 +70,6 @@ p.s. not a LANY fan
 - [`Instagram`](https://www.instagram.com/jojidhen/)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/j-dShc4GMe4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 
 ![](https://komarev.com/ghpvc/?username=jiesquared&color=yellow&style=for-the-badge&label=Stalkers+ni+Idol)
