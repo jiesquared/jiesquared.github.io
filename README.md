@@ -23,6 +23,7 @@
 - [Bee Gees](https://open.spotify.com/artist/1LZEQNv7sE11VDY3SdxQeN?si=fsxjjQdVTVKwOaePpdqMhA)
 - [Enhypen](https://open.spotify.com/artist/5t5FqBwTcgKTaWmfEbwQY9?si=e1EpDHPvQHOTd2F44b7Cbg)
 - [Lesserafim](https://open.spotify.com/artist/4SpbR6yFEvexJuaBpgAU5p?si=PsVmcfKiSkGwVXbai5C-wA)
+- [NCT DREAM](https://open.spotify.com/artist/1gBUSTR3TyDdTVFIaQnc02?si=cV7S_Q6KTKiDTG7wwH8T9g)
 
 I listen to a lot more, from different genres and artists. 
 
