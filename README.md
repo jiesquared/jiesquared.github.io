@@ -2,10 +2,27 @@
   
 ![](https://i.pinimg.com/originals/f0/34/24/f03424bd0298f06f09d9299e930abef3.gif)
 
+>I'm Mary Jojidhen F. Pornillos, a Grade-9 student from Ateneo de Naga University. Welcome to my Space :).
 
 
+![](https://i.pinimg.com/originals/75/67/db/7567db7f008380b89caa21956d762174.gif)
 
->I'm Mary Jojidhen F. Pornillos a Grade-9 student from Ateneo de Naga University. Welcome to my Space :).
+**What I Watch**
+
+- Arcane
+- Formula 1: Drive to Survive
+- Jujutsu Kaisen 0: The Movie
+- Jujutsu Kaisen
+- Naruto
+- Saiki K.
+- Enola Holmes 
+- Enola Holmes 2
+- Kim's Convenience
+- Meet Joe Black
+- Start-Up
+- Extraordinary Attorney Woo
+- 20th Century
+- W - Two Worlds Apart
 
 
 ![](https://i.pinimg.com/originals/f8/65/65/f865657c5ca1e879d1323b455fd2afd0.gif)
