@@ -30,12 +30,15 @@ I listen to a lot more, from different genres and artists. Here are some of my p
 pov
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/6vWaApql2WFCYXA5rlZlY1?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 -
+
 what if you took the risk?
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/7wR1IorwTaCOXTm3OgoX4c?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 -
+
 bgc playlist siguro
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/1lus6a7RcXGD7Uw842fZhF?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 -
+
 p.s. not a LANY fan
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/0ZyNZaEGmHSueSlPp6QCi5?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
