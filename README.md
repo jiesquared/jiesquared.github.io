@@ -48,7 +48,7 @@ p.s. not a LANY fan
 
 - [`Spotify`](https://open.spotify.com/user/31bljzdevzoedxkqzorvmez6it7y?si=d0b1bea720f24566)
 - [`Facebook`](https://www.facebook.com/maryjojidhen.pornillos.5)
+- [`Pinterest`](https://www.pinterest.ph/jojidhen/)
 - [`Instagram`](https://www.instagram.com/jojidhen/)
-
 
 ![](https://komarev.com/ghpvc/?username=jiesquared&color=yellow&style=for-the-badge&label=Stalkers+ni+Idol)
