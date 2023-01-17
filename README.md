@@ -27,9 +27,7 @@
 
 I listen to a lot more, from different genres and artists. Here are some of my playlists:
 
-- pov
-
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/6vWaApql2WFCYXA5rlZlY1?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+- pov <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/6vWaApql2WFCYXA5rlZlY1?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
    
 - what if you took the risk?
 
