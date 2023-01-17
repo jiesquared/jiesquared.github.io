@@ -2,7 +2,7 @@
   
 ![](https://i.pinimg.com/originals/f0/34/24/f03424bd0298f06f09d9299e930abef3.gif)
 
->I'm Mary Jojidhen F. Pornillos, a Grade-9 student from Ateneo de Naga University. I like playing instruments, creating poems and stories, organizing and making playlists or boards and taking pictures. I'm unsure of what I want and unsure of which career path to take, so if you're just like me, well you're not alone. Welcome to my Space, where you learn (about me). Enjoy!
+>I'm Mary Jojidhen F. Pornillos, a Grade-9 student from Ateneo de Naga University. I like playing instruments, creating poems and stories, organizing and making playlists or boards and taking pictures. I'm unsure of what I want to be and unsure of which career path to take, so if you're just like me, well you're not alone. Welcome to my Space, where you learn (about me). Enjoy!
 
 
 ![](https://i.pinimg.com/originals/75/67/db/7567db7f008380b89caa21956d762174.gif)
