@@ -45,3 +45,5 @@ p.s. not a LANY fan
 
 - [`Facebook`](https://www.facebook.com/maryjojidhen.pornillos.5)
 - [`Spotify`](https://open.spotify.com/user/31bljzdevzoedxkqzorvmez6it7y?si=d0b1bea720f24566)
+
+![](https://komarev.com/ghpvc/?username=jiesquared&color=yellow&style=flat-square)
