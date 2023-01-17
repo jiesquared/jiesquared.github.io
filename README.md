@@ -2,7 +2,9 @@
   
 ![](https://i.pinimg.com/originals/f0/34/24/f03424bd0298f06f09d9299e930abef3.gif)
 
+
 >I'm Mary Jojidhen F. Pornillos, a Grade-9 student from Ateneo de Naga University. I like playing instruments, creating poems and stories, organizing and making playlists or boards and taking pictures. I'm unsure of what I want to be and unsure of which career path to take, so if you're just like me, well you're not alone. Welcome to my Space, where you learn (about me). Enjoy!
+
 
 
 ![](https://i.pinimg.com/originals/75/67/db/7567db7f008380b89caa21956d762174.gif)
@@ -60,12 +62,13 @@ p.s. not a LANY fan
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/0ZyNZaEGmHSueSlPp6QCi5?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
-
 **Socials**
 
 - [`Spotify`](https://open.spotify.com/user/31bljzdevzoedxkqzorvmez6it7y?si=d0b1bea720f24566)
 - [`Facebook`](https://www.facebook.com/maryjojidhen.pornillos.5)
 - [`Pinterest`](https://www.pinterest.ph/jojidhen/)
 - [`Instagram`](https://www.instagram.com/jojidhen/)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j-dShc4GMe4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 ![](https://komarev.com/ghpvc/?username=jiesquared&color=yellow&style=for-the-badge&label=Stalkers+ni+Idol)
